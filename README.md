@@ -1,3 +1,3 @@
 # praktikumMobile
 
-https://youtu.be/mr_ZKYIzhLQ
+https://drive.google.com/file/d/1oOJ3_BnMThcZ6AqtSgpjoD1CHkYNstfg/view?usp=sharing
